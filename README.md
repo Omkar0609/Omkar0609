@@ -13,6 +13,8 @@ I'm an ambitious, hard-working, innovative, and proactive person who is speciali
 
 **Data Analysis:** Exploratory Data Analysis, Ensemble Methods, Strong Statistical Foundation, Model Development & Evaluation Metrics, Quantitative Methods, Google Analytics.
 
+**Find Me Below :**
+
 [<img target="_blank" src="https://user-images.githubusercontent.com/100305621/203567994-4a27ebcf-6a5b-4c7a-8372-768d18469462.png"/>](https://wa.me/917558583854) [<img target="_blank" src="https://user-images.githubusercontent.com/100305621/203568810-3746d890-8ec7-4784-b649-974225c62c41.png"/>](https://www.linkedin.com/in/omkar-khopade-180701242/)
 [<img target="_blank" src="https://user-images.githubusercontent.com/100305621/203569244-2d9cf46f-fe68-41dd-80c9-abc26533a80b.png"/>](https://www.instagram.com/007_0mkar/)
 
